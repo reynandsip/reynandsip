@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @reynandsip
+- 👀 I’m interested in coding
